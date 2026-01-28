@@ -9,6 +9,10 @@ http://shinypogk4jjniry5qi7247tznop6mxdrdte2k6pdu5cyo43vdzmrwid.onion/
 http://toolatedhs5dtr2pv6h5kdraneak5gs3sxrecqhoufc5e45edior7mqd.onion/
 
 ## Forums
+New Raidforums
+raidforums.st
+
+763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion
 
 ## Telegram Channels
 scattered LAPSUS$ hunters part 7 - Chat - t.me/shseller13
