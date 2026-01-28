@@ -8,6 +8,14 @@ http://shinypogk4jjniry5qi7247tznop6mxdrdte2k6pdu5cyo43vdzmrwid.onion/
 http://toolatedhs5dtr2pv6h5kdraneak5gs3sxrecqhoufc5e45edior7mqd.onion/  
 
 ## Forums
+BreachForums  
+Breachforums.bf  
+http://breachedmw4otc2lhx7nqe4wyxfhpvy32ooz26opvqkmmrbg73c7ooad.onion/  
+
+Hasan BreachForums  
+Breachforums.cz  
+http://breach5yz2b5lepmq4gaqwcon3jippw3bislhvvdavem5git55sy2nid.onion/  
+
 New Raidforums  
 raidforums.st  
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
