@@ -11,10 +11,6 @@ http://toolatedhs5dtr2pv6h5kdraneak5gs3sxrecqhoufc5e45edior7mqd.onion/
 ## Forums
 
 ## Telegram Channels
-scattered LAPSUS$ hunters part 7 - Chat
+scattered LAPSUS$ hunters part 7 - Chat - t.me/shseller13
 
-t.me/shseller13
-
-Infrastructure Destruction Squad
-
-t.me/n2LP_wVf79c2YzM0
+Infrastructure Destruction Squad - t.me/n2LP_wVf79c2YzM0
