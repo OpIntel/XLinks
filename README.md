@@ -33,7 +33,8 @@ umbra.by
 t.me/umbraby  
 
 **New Raidforums**  
-raidforums.st  
+raidforums.wtf  
+~~raidforums.st~~  
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
 
 ## Telegram Channels
