@@ -43,3 +43,6 @@ t.me/shseller13
 
 Infrastructure Destruction Squad  
 t.me/n2LP_wVf79c2YzM0
+
+## BreachForums wars
+Cookies etc stolen by Nicotine of Umbra - https://nicotine.sh/bfxss.txt  
