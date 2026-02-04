@@ -20,7 +20,8 @@ DarkForums.io
 http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion/ [Down]  
 
 **BreachForums**  
-Breachforums.bf  
+breachforums.jp  
+~~Breachforums.bf~~  
 http://breachedmw4otc2lhx7nqe4wyxfhpvy32ooz26opvqkmmrbg73c7ooad.onion/  
 
 **Hasan BreachForums**  
