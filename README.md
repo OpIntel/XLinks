@@ -18,7 +18,8 @@ https://cdn.breachforums.bf/pay_the_fucking_ransom_next_time/
 **DarkForums**  
 darkforums.me  
 ~~DarkForums.io~~  
-http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion/ [Down]  
+http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion  
+Updates: knox.hn  
 
 **BreachForums**  
 breachforums.jp  
