@@ -12,7 +12,7 @@ http://shinypogk4jjniry5qi7247tznop6mxdrdte2k6pdu5cyo43vdzmrwid.onion/
 http://toolatedhs5dtr2pv6h5kdraneak5gs3sxrecqhoufc5e45edior7mqd.onion/  
 
 SLSH Mirror on BF CDN:  
-https://cdn.breachforums.bf/pay_the_fucking_ransom_next_time/  
+~~https://cdn.breachforums.bf/pay_the_fucking_ransom_next_time/~~  
 
 ## Forums
 **DarkForums**  
