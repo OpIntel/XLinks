@@ -28,7 +28,7 @@ breachforums.as
 http://breachedmw4otc2lhx7nqe4wyxfhpvy32ooz26opvqkmmrbg73c7ooad.onion/  
 
 **Hasan BreachForums**  
-Breachforums.cz  
+~~Breachforums.cz~~  
 http://breach5yz2b5lepmq4gaqwcon3jippw3bislhvvdavem5git55sy2nid.onion/  
 t.me/jacuzzi  
 
