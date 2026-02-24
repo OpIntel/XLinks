@@ -46,7 +46,7 @@ raidforums.wtf
 **CyberArsenal** 
 CyberArsenal.org  
 
-**Spear** 
+**Spear**  
 Spear.cx  
 spear4h2potiyk43oilufhuq2jqbioyaizcs7xttlyw75s5ykwxpxlid.onion  
 
