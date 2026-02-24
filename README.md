@@ -43,17 +43,17 @@ raidforums.wtf
 ~~raidforums.st~~  
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
 
-**CyberArsenal** 
+**CyberArsenal**  
 CyberArsenal.org  
 
 **Spear**  
 Spear.cx  
 spear4h2potiyk43oilufhuq2jqbioyaizcs7xttlyw75s5ykwxpxlid.onion  
 
-**XForums** 
+**XForums**  
 xforums.st  
 
-**TierOne** 
+**TierOne**  
 t1eron3.vip  
 jprrin6bqe3flvtpyxkt4zsmzc3u6vvn7ahgtcbul224w3xn4h3gawid.onion  
 
