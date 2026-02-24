@@ -43,6 +43,20 @@ raidforums.wtf
 ~~raidforums.st~~  
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
 
+**CyberArsenal** 
+CyberArsenal.org  
+
+**Spear** 
+Spear.cx  
+spear4h2potiyk43oilufhuq2jqbioyaizcs7xttlyw75s5ykwxpxlid.onion  
+
+**XForums** 
+xforums.st  
+
+**TierOne** 
+t1eron3.vip  
+jprrin6bqe3flvtpyxkt4zsmzc3u6vvn7ahgtcbul224w3xn4h3gawid.onion  
+
 ## Telegram Channels
 scattered LAPSUS$ hunters part 7 - Chat  
 t.me/shseller13
