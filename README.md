@@ -32,6 +32,7 @@ breachforums.in
 breach.forum (unused currently)  
 ~~Breachforums.cz~~  
 http://breach5yz2b5lepmq4gaqwcon3jippw3bislhvvdavem5git55sy2nid.onion/  
+CDN: cdn.breachforums.in/documents  
 t.me/jacuzzi  
 
 **Umbra Forums**  
