@@ -16,7 +16,8 @@ SLSH Mirror on BF CDN:
 
 ## Forums
 **DarkForums**  
-darkforums.me  
+darkforums.ac  
+~~darkforums.me~~  
 ~~DarkForums.io~~  
 http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion  
 Updates: knox.hn  
