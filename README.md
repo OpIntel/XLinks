@@ -16,6 +16,8 @@ SLSH Mirror on BF CDN:
 
 ## Forums
 **DarkForums**  
+darkforums.st  
+darkforums.ru  
 darkforums.su  
 ~~darkforums.ac~~  
 ~~darkforums.me~~  
