@@ -78,7 +78,7 @@ Cookies etc stolen by Nicotine of Umbra - https://nicotine.sh/bfxss.txt
 
 # FAKE Shiny Hunters IOC
 
-The FAKE Shiny Hunters are pretending to be Scattered LAPSUS$ Shiny Hunters. Their telegrams link to the SLSH download site. They post SLSH breaches.
+The FAKE Shiny Hunters are pretending to be Scattered LAPSUS$ Shiny Hunters. Their telegrams link to the SLSH download site. They post SLSH breaches and exit scam their forums. They are scammers, deal with caution  
 
 ## Telegram
 Owner: @shinyc0rpsss  
