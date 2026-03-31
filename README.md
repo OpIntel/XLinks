@@ -26,6 +26,8 @@ http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion
 Updates: knox.hn  
 
 **BreachForums**  
+https://breachforums.sb  
+https://breachforums.ai  
 ~~breachforums.as~~  
 ~~breachforums.jp~~  
 ~~Breachforums.bf~~  
