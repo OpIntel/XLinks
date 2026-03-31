@@ -75,3 +75,29 @@ t.me/n2LP_wVf79c2YzM0
 
 ## BreachForums wars
 Cookies etc stolen by Nicotine of Umbra - https://nicotine.sh/bfxss.txt  
+
+# FAKE Shiny Hunters IOC
+
+The FAKE Shiny Hunters are pretending to be Scattered LAPSUS$ Shiny Hunters. Their telegrams link to the SLSH download site. They post SLSH breaches.
+
+## Telegram
+Owner: @shinyc0rpsss  
+Admin: @whalesgleitsman  
+@evolvedbunnyberserker  
+  
+BreachForums t.me/BreachForumsReturn  
+ShinyHunters https://t.me/+X6Y8t-0tT1VmODI1  
+Breach t.me/+6Tlk2y7ECcY52TM0  
+International Global Network (SLSH) t.me/+i-JdQ9AupH45NTRl  
+scattered LAPSUS$ hunters part 9 - Chat https://t.me/+uIDt6PiHin4wMjY1  
+Leaks Market https://t.me/+9oPBAoHzLBkzNTBl  
+Official Files channel  @SolonikChannels  
+ShinyMontana Exploit t.me/+VhsHWucnwPBlNDZl  
+Whalehunters t.me/whaleshinyhunters  
+Whale Private t.me/+NprABQDU3ZYzNzll  
+Whale Market t.me/+CIwt9Ryus085MzRl
+
+## Fake Breachforums
+breachforums.ai  
+breachforums.sb  
+breachforums.as  
