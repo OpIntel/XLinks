@@ -28,15 +28,7 @@ darkforums.su
 ~~darkforums.me~~  
 ~~DarkForums.io~~  
 http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion  
-Updates: knox.hn  
-
-**BreachForums**  
-https://breachforums.sb  
-https://breachforums.ai  
-~~breachforums.as~~  
-~~breachforums.jp~~  
-~~Breachforums.bf~~  
-http://breachedmw4otc2lhx7nqe4wyxfhpvy32ooz26opvqkmmrbg73c7ooad.onion/  
+Updates: knox.hn   
 
 **Hasan BreachForums**  
 breached.st  
@@ -105,6 +97,11 @@ Whale Private t.me/+NprABQDU3ZYzNzll
 Whale Market t.me/+CIwt9Ryus085MzRl
 
 ## Fake Breachforums
-breachforums.ai  
-breachforums.sb  
+breachforums.rs  
 breachforums.as  
+https://breachforums.sb  
+https://breachforums.ai  
+~~breachforums.as~~  
+~~breachforums.jp~~  
+~~Breachforums.bf~~  
+http://breachedmw4otc2lhx7nqe4wyxfhpvy32ooz26opvqkmmrbg73c7ooad.onion/ 
