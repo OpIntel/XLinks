@@ -5,8 +5,8 @@ Follow at your own risk, these are threat actor links, threat actor forums, thre
 
 ### Scattered LAPSUS$ Shiny Hunters
 New Telegram Announcement Channel **t.me/FsckAroundFindOut**  
-scattered LAPSUS$ hunters part 7 Chat - t.me/shseller13  
-"CI & CTAD Dept" t.me/fb1hunt3rz
+scattered LAPSUS$ hunters part 7 Chat - https://t.me/shseller13  
+~~"CI & CTAD Dept" t.me/fb1hunt3rz~~  
 
 Download Site:  
 http://shinypogk4jjniry5qi7247tznop6mxdrdte2k6pdu5cyo43vdzmrwid.onion/  
