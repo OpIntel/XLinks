@@ -23,7 +23,7 @@ pwnfrm7rbf6kyerigxi677lcz5ifmoagdbqqknwdu2by27wfdst5qmqd.onion
 **DarkForums**  
 darkforums.st  
 darkforums.ru  
-darkforums.su  
+~~darkforums.su~~  
 ~~darkforums.ac~~  
 ~~darkforums.me~~  
 ~~DarkForums.io~~  
@@ -50,6 +50,9 @@ t.me/umbraby
 raidforums.wtf  
 ~~raidforums.st~~  
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
+
+**New New Raidforums** 
+raidforums.hn 
 
 **CyberArsenal**  
 CyberArsenal.org  
