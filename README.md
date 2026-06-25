@@ -31,6 +31,7 @@ http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion
 Updates: knox.hn   
 
 **Hasan BreachForums**  
+currently down  
 breached.st  
 ~~breachforums.me~~  
 breachforums.in  
@@ -39,7 +40,10 @@ breach.forum (unused currently)
 http://breach5yz2b5lepmq4gaqwcon3jippw3bislhvvdavem5git55sy2nid.onion/  
 CDN: cdn.breachforums.in/documents  
 t.me/jacuzzi  
-https://hasan.broker
+https://hasan.broker  
+
+**Dien BreachForums**  
+breached.su  
 
 **Umbra Forums**  
 umbra.st  
@@ -51,7 +55,7 @@ raidforums.wtf
 ~~raidforums.st~~  
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
 
-**New New Raidforums** 
+**New New Raidforums**  
 raidforums.hn 
 
 **CyberArsenal**  
