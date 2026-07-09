@@ -31,13 +31,15 @@ http://darkfoxaqhfpxkrbt7vxns2z2u2k72sgmqbzeorupaiottw3ecm2wgyd.onion
 Updates: knox.hn   
 
 **Hasan BreachForums**  
-currently down  
 breached.st  
 ~~breachforums.me~~  
 breachforums.in  
 breach.forum (unused currently)  
 ~~Breachforums.cz~~  
-http://breach5yz2b5lepmq4gaqwcon3jippw3bislhvvdavem5git55sy2nid.onion/  
+breach22uu7wb4tnc4ghq22e6umgpu5atxqf4ayckmclm7cgllljq4qd.onion  
+breachee7czkuzot3ctl2aboeqciji33vklukcuwqpnnco54yqb5juid.onion  
+breach5wmaffq6ikjuc4jdvez7qznkddj7sybmvg3b3nnix4c7yfu3id.onion  
+
 CDN: cdn.breachforums.in/documents  
 t.me/jacuzzi  
 https://hasan.broker  
