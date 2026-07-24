@@ -13,7 +13,7 @@ http://shinypogk4jjniry5qi7247tznop6mxdrdte2k6pdu5cyo43vdzmrwid.onion/
 http://toolatedhs5dtr2pv6h5kdraneak5gs3sxrecqhoufc5e45edior7mqd.onion/  
 
 SLSH Mirror on BF CDN:  
-https://cdn.breachforums.fi/pay_or_leak/  
+~~https://cdn.breachforums.fi/pay_or_leak/~~  
 
 ## Forums
 **PwnForums**  
@@ -58,7 +58,8 @@ raidforums.wtf
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
 
 **New New Raidforums**  
-raidforums.hn 
+raidforums.ru  
+~~raidforums.hn~~  
 
 **CyberArsenal**  
 CyberArsenal.org  
