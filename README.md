@@ -61,6 +61,7 @@ raidforums.wtf
 raidforums.as  
 ~~raidforums.ru~~  
 ~~raidforums.hn~~  
+https://t.me/RaidForumsHub  
 
 **CyberArsenal**  
 CyberArsenal.org  
