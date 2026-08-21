@@ -18,6 +18,7 @@ SLSH Mirror on BF CDN:
 ## Forums
 **PwnForums**  
 pwnforums.st  
+pwnforums.as  
 pwnfrm7rbf6kyerigxi677lcz5ifmoagdbqqknwdu2by27wfdst5qmqd.onion  
 
 **DarkForums**  
