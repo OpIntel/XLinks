@@ -22,8 +22,9 @@ pwnforums.as
 pwnfrm7rbf6kyerigxi677lcz5ifmoagdbqqknwdu2by27wfdst5qmqd.onion  
 
 **DarkForums**  
-darkforums.st  
-darkforums.ru  
+darkforums.as  
+~~darkforums.st~~  
+~~darkforums.ru~~  
 ~~darkforums.su~~  
 ~~darkforums.ac~~  
 ~~darkforums.me~~  
