@@ -60,7 +60,8 @@ raidforums.wtf
 763olyp74dxnq4wrzukk3dde6ffahxxjzealf3bzvdoyd7tptksxiiad.onion  
 
 **New New Raidforums**  
-raidforums.as  
+raidforums.im  
+~~raidforums.as~~  
 ~~raidforums.ru~~  
 ~~raidforums.hn~~  
 https://t.me/RaidForumsHub  
