@@ -80,6 +80,9 @@ xforums.st
 t1eron3.vip  
 jprrin6bqe3flvtpyxkt4zsmzc3u6vvn7ahgtcbul224w3xn4h3gawid.onion  
 
+**PWS Forums**  
+pwsforums.pw  
+
 ## Telegram Channels
 scattered LAPSUS$ hunters part 7 - Chat  
 t.me/shseller13
