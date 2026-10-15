@@ -77,7 +77,8 @@ spear4h2potiyk43oilufhuq2jqbioyaizcs7xttlyw75s5ykwxpxlid.onion
 xforums.st  
 
 **TierOne**  
-tier1.pro  
+tier1.ink  
+~~tier1.pro~~  
 ~~t1eron3.vip~~  
 jprrin6bqe3flvtpyxkt4zsmzc3u6vvn7ahgtcbul224w3xn4h3gawid.onion  
 
